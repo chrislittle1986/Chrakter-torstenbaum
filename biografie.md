@@ -7,4 +7,4 @@ Sein treuester Begleiter ist sein Rottweiler, der nicht nur sein bester Freund i
 
 Torsten Baum ist somit eine einzigartige Mischung aus Naturmensch, Ermittler, Kampfsportler und Genießer – ein Mann, der das Leben in all seinen Facetten schätzt und lebt.
 
-Gibt es noch weitere Aspekte, die du über Torsten erfahren möchtest?
+
